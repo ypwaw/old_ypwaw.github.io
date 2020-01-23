@@ -7,11 +7,11 @@ tylko karaluchy przetrwają. dlaczego wielkie korporacje muszą upaść, a przet
 
 co jeszcze w tym tygodniu?
 
-**25.01 malowanie ośrodka.** weź ubranie na zmianę.
+**25.01 malowanie ośrodka.** weź ubranie robocze.
 
-plan pracy:
-1 ekipa: 10-13:00 (plus obiad o 13:30)
-2 ekipa: 16-19:00 (plus kolacja o 20:00)
+plan pracy: <br>
+1 ekipa: 10-13:00 (plus obiad o 13:30)<br>
+2 ekipa: 16-19:00 (plus kolacja o 20:00)<br>
 
 **1.02 zjazd yp. ikara 6. zaczynamy o 10:00**
 <details>
