@@ -1,21 +1,18 @@
 ### spotkanie co wtorek 18:30 przy Ikara 6.
 
-w tym tygodniu:
-```
-spotkanie z dr inż. Tadeuszem Lisem, ekspertem ds. zarządzania kryzysowego. 
+najbliższe spotkanie wtorkowe:
+
+**28.01 spotkanie z dr inż. Tadeuszem Lisem, ekspertem ds. zarządzania kryzysowego.**
 tylko karaluchy przetrwają. dlaczego wielkie korporacje muszą upaść, a przetrwają małe firmy?
-```
 
+co jeszcze w tym tygodniu?
 
-Kręgi formacyjne
-3.09 / 17.09 / 1.10 / 8.10 / 29.10 / 5.11 / 26.11 / 3.12 / 17.12 / 7.01 / 28.01 / 4.02 / 18.02 / 3.03 / 17.03 / 31.03 / 14.04 / 28.04 / 5.05/ 19.05 / 02.06 / 9.06 / 30.06
+**25.01 malowanie ośrodka.** weź ubranie na zmianę.
 
-Dni skupienia
-10.09 / 15.10 / 2.11 / 10.12 / 14.01 / 11.02 / 10.03 / 07.04 / 12.05 / 16.06
+plan pracy:
+1 ekipa: 10-13:00 (plus obiad o 13:30)
+2 ekipa: 16-19:00 (plus kolacja o 20:00)
 
-Q&A z ekspertami
-24.09 / 22.10 / 19.11 / 21.01 / 25.02 / 24.03 / 21.04 / 19.05 / 23.06
+**najbliższe rekolekcje: 27.02-1.03 w [dworku](https://goo.gl/maps/iMpisaQaSDbGV1T49)**
 
-
-
-
+**coroczny wolontariat wakacyjny 2-9.08. [siennica](https://goo.gl/maps/oir1wwNkufv1N8h68)**
