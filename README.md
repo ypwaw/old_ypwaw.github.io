@@ -13,6 +13,10 @@ plan pracy: <br>
 1 ekipa: 10-13:00 (plus obiad o 13:30)<br>
 2 ekipa: 16-19:00 (plus kolacja o 20:00)<br>
 
+------
+
+zbliżające się wydarzenia:
+
 **1.02 zjazd yp. ikara 6. zaczynamy o 10:00**
 <details>
   <summary>zobacz plan</summary>
@@ -45,3 +49,6 @@ zakończenie błogosławieństwem
 
 **2-9.08 coroczny wolontariat wakacyjny [siennica](https://goo.gl/maps/oir1wwNkufv1N8h68)**
 [zobacz jak było rok temu](https://youtu.be/uP36kN5RhqY)
+
+------
+[fb](https://www.facebook.com/%C5%9Awi%C4%99to%C5%9B%C4%87-w-wielkim-mie%C5%9Bcie-100984374613925/?modal=admin_todo_tour)
