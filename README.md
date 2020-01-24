@@ -54,4 +54,3 @@ zakończenie błogosławieństwem
 [fb](https://www.facebook.com/%C5%9Awi%C4%99to%C5%9B%C4%87-w-wielkim-mie%C5%9Bcie-100984374613925/?modal=admin_todo_tour)
 
 <a href="mailto:marcin.jagielowicz@gmail.com">napisz do mnie</a>
-[Napisz do nas](marcin.jagielowicz@gmail.com) 
