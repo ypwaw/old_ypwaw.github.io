@@ -17,7 +17,7 @@ plan pracy: <br>
 
 zbliżające się wydarzenia:
 
-**1.02 zjazd yp. ikara 6. zaczynamy o 10:00**
+**1.02 zjazd yp. ikara 6. zaczynamy o 10:00** <br>
 <details>
   <summary>zobacz plan</summary>
   
