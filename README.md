@@ -39,8 +39,7 @@ czasach postprawdy”. (45 min.)
 
 **14:30** siennica 2020 - jak mogę pomóc zdolnej młodzieży? -
 prezentacja naszego projektu wolontariackiego. omówienie kalendarza
-wyjazdów i formacji na najbliższe pół roku. prezentacja nowego
-narzędzia do komunikacji. (45 min.)
+wyjazdów i formacji na najbliższe pół roku. (45 min.)
 
 zakończenie błogosławieństwem
 </details>
