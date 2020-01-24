@@ -17,11 +17,10 @@ plan pracy: <br>
 
 zbliżające się wydarzenia:
 
-**1.02 zjazd yp. ikara 6. zaczynamy o 10:00** <br>
+**1.02 'yp saturday' - zjazd, ikara 6. start 10:00** <br>
 <details>
-  <summary>zobacz plan</summary>
+<summary>plan</summary>
   
-  ## yp saturday - plan
   
 **10:00** rozważanie (30 min.)
   
@@ -43,6 +42,9 @@ wyjazdów i formacji na najbliższe pół roku. (45 min.)
 
 zakończenie błogosławieństwem
 </details>
+
+------
+
 
 **27.02-1.03 najbliższe rekolekcje w [dworku](https://goo.gl/maps/iMpisaQaSDbGV1T49)**
 
