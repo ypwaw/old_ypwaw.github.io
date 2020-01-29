@@ -34,7 +34,6 @@ zakończenie błogosławieństwem
 ------
 
 **W najbliższy wtorek dla grupy Marcina J. i Pawła B. wykład teologiczny z cyklu "Bóg w czasach postprawdy" o 18:30.
-
 Dla grupy Marcina H. i Mateusza Ł. krąg o 19:00**
 
 **27.02-1.03 najbliższe rekolekcje w [dworku](https://goo.gl/maps/iMpisaQaSDbGV1T49)**
