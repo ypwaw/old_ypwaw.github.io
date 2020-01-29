@@ -1,17 +1,6 @@
 ### spotkanie co wtorek 18:30 przy ikara 6.
 
-najbliższe spotkanie wtorkowe:
-
-**28.01 spotkanie z dr inż. tadeuszem lisem, ekspertem ds. zarządzania kryzysowego.**
-tylko karaluchy przetrwają. dlaczego wielkie korporacje muszą upaść, a przetrwają małe firmy?
-
-co jeszcze w tym tygodniu?
-
-**25.01 malowanie ośrodka.** weź ubranie robocze.
-
-plan pracy: <br>
-1 ekipa: 10-13:00 (plus obiad o 13:30)<br>
-2 ekipa: 16-19:00 (plus kolacja o 20:00)<br>
+w tą sobotę zjaz yp (miejsce stałe - przy ikara)
 
 ------
 
