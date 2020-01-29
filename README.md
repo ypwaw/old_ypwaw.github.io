@@ -1,6 +1,5 @@
 ### spotkanie co wtorek 18:30 przy ikara 6.
 
-w tę sobotę zjazd yp - plan ponżej (miejsce stałe - przy ikara)
 
 ------
 
