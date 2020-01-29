@@ -3,7 +3,7 @@
 
 ------
 
-zbliżające się wydarzenia:
+w tę sobotę:
 
 **1.02 'yp saturday' - zjazd, ikara 6. start 10:00** <br>
 <details>
