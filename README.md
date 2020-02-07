@@ -4,11 +4,11 @@ W najbliższy wtorek 11.02 dzień skupienia.
 
 Plan:
 
-18:30 Czytanie duchowe (15 min.)
-18:45 Pogadanka (15 min.)
-19:00 Adoracja Najświętszego Sakramentu i możliwość spowiedzi (30 min.)
-19:30 Rachunek sumienia (15 min.)
-19:45 Rozważanie i błogosławieństwo Najświętszym Sakramentem (40 min)
+18:30 Czytanie duchowe (15 min.)<br>
+18:45 Pogadanka (15 min.)<br>
+19:00 Adoracja Najświętszego Sakramentu i możliwość spowiedzi (30 min.)<br>
+19:30 Rachunek sumienia (15 min.)<br>
+19:45 Rozważanie i błogosławieństwo Najświętszym Sakramentem (40 min)<br>
 
 Zakończenie około 20:30
 
