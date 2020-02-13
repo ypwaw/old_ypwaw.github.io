@@ -6,6 +6,8 @@ Marcina J. i Pawła B. o 18:30<br>
 
 Marcina H. i Mateusza Ł. o 19:00
 
+----
+
 **27.02-1.03 Najbliższe rekolekcje w [Dworku](https://goo.gl/maps/iMpisaQaSDbGV1T49)**
 
 **2-9.08 Coroczny wolontariat wakacyjny [Siennica](https://goo.gl/maps/oir1wwNkufv1N8h68)**
