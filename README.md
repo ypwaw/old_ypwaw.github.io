@@ -6,16 +6,6 @@ Marcina J. i Pawła B. o 18:30<br>
 
 Marcina H. i Mateusza Ł. o 19:00
 
-Plan:
-
-18:30 Czytanie duchowe (15 min.)<br>
-18:45 Pogadanka (15 min.)<br>
-19:00 Adoracja Najświętszego Sakramentu i możliwość spowiedzi (30 min.)<br>
-19:30 Rachunek sumienia (15 min.)<br>
-19:45 Rozważanie i błogosławieństwo Najświętszym Sakramentem (40 min)<br>
-
-Zakończenie około 20:30
-
 **27.02-1.03 Najbliższe rekolekcje w [Dworku](https://goo.gl/maps/iMpisaQaSDbGV1T49)**
 
 **2-9.08 Coroczny wolontariat wakacyjny [Siennica](https://goo.gl/maps/oir1wwNkufv1N8h68)**
