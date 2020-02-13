@@ -1,6 +1,10 @@
 ### Spotkanie co wtorek 18:30 przy ikara 6.
 
-W najbliższy wtorek 11.02 dzień skupienia.
+W najbliższy wtorek 18.02 kręgi:<br>
+
+Marcina J. i Pawła B. o 18:30<br>
+
+Marcina H. i Mateusza Ł. o 19:00
 
 Plan:
 
