@@ -15,8 +15,6 @@ Więcej info u Marcina Humanickiego. <br>
 
 ----
 
-**27.02-1.03 Najbliższe rekolekcje w [Dworku](https://goo.gl/maps/iMpisaQaSDbGV1T49)**
-
 **2-9.08 Coroczny wolontariat wakacyjny [Siennica](https://goo.gl/maps/oir1wwNkufv1N8h68)**
 [zobacz jak było rok temu](https://youtu.be/uP36kN5RhqY)
 
