@@ -9,9 +9,9 @@ Rozważanie <br>
 Rachunek sumienia <br>
 Możliwość spowiedzi <br>
 
-W czwartek 5.03 wieczorne czuwanie przed Najświętszym Sakramentem.
-Start o 20 (kolacja). Zakończenie 21.30 (błogosławieństwo).
-Więcej info u Marcina Humanickiego.
+W czwartek 5.03 wieczorne czuwanie przed Najświętszym Sakramentem. <br>
+Start o 20 (kolacja). Zakończenie 21.30 (błogosławieństwo). <br>
+Więcej info u Marcina Humanickiego. <br>
 
 ----
 
