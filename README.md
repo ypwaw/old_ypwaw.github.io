@@ -1,10 +1,17 @@
 ### Spotkanie co wtorek 18:30 przy ikara 6.
 
-W najbliższy wtorek 18.02 kręgi:<br>
+W najbliższy wtorek 10.03 dzień skupienia <br>
 
-Marcina J. i Pawła B. o 18:30<br>
+W planie <br>
+Czytanie duchowe<br>
+Adoracja Najświętszego Sakramentu <br>
+Rozważanie <br>
+Rachunek sumienia <br>
+Możliwość spowiedzi <br>
 
-Marcina H. i Mateusza Ł. o 19:00
+W czwartek 5.03 wieczorne czuwanie przed Najświętszym Sakramentem.
+Start o 20 (kolacja). Zakończenie 21.30 (błogosławieństwo).
+Więcej info u Marcina Humanickiego.
 
 ----
 
