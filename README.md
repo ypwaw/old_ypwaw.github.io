@@ -29,6 +29,8 @@ Droga Krzyżowa: 16:45 w Wielkim Poście;
 
 Lista Mszy w Polsce i na świecie (sporo w języku łacińskim) https://msza-online.net/msze-swiete-zywo/ 
 
+Adoracja Najświętszego Sakramentu - Sanktuarium w Torreciudad https://www.youtube.com/watch?v=5h-puxK0XTI&feature=emb_logo 
+
 ----
 
 **2-9.08 Coroczny wolontariat wakacyjny [Siennica](https://goo.gl/maps/oir1wwNkufv1N8h68)**
