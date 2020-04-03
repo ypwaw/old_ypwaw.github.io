@@ -1,6 +1,6 @@
 ### Spotkanie co wtorek 18:30 przy ikara 6. W obecnej sytuacji wszystkie spotkania i kursy formacyjne odbywają się online.
 
-W najbliższy piątek spotkanie "w tyglu świata". Mateusz i Marcin opowiedzą o Izraelu. Data: 3.02 o godz. 18:30. Link do zooma wyślemy na konwersacji FB i na wydarzeniu https://www.facebook.com/events/235620920821668/.
+W najbliższy piątek spotkanie "w tyglu świata". Mateusz i Marcin opowiedzą o Izraelu. Data: 3.02 o godz. ~~18:30~~ 18:50. Link do zooma wyślemy na konwersacji FB i na wydarzeniu https://www.facebook.com/events/235620920821668/.
 
 W najbliższy wtorek 7.02 krąg. Marcina J./Pawła B./Piotra P. o 18:30. Marcina H./Karola/Gabriela/Mateusza Ł. o 19:00.
 
