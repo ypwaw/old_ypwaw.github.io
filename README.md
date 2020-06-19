@@ -1,10 +1,12 @@
-### Najbliższe wydarzenia Przy Ikara
+# Spotkanie co wtorek 18:30 przy ikara 6.
 
-## 26 czerwca (piątek) - Katedra Warszawska św. Jana Chrzciciela
+## Najbliższe wydarzenia dodatkowe
+
+### 26 czerwca (piątek) o 19:00 - Ktedra Warszawska św. Jana Chrzciciela 
 Msza Św. o św. Josemarii 🙂 godz. 19:00. Msza będzie z biskupem. To liturgiczne wspomnienie naszego Założyciela - warto już teraz polecać mu dużo intencji. Na Mszę śmiało można zapraszać rodzinę, znajomych.
 
-## 30 czerwca (wtorek) o 18:30
-na Ikara będziemy gościć pana Adama Piotrowskiego, prezesa Vigo System. Jest to polska spółka innowacyjna, która realizuje ciekawe projekty badawcze, jest znana m.in. z tego, że w 2016 r. na Marsa poleciał łazik z ich detektorami podczerwieni. Zapraszamy przyjaciół, kolegów i osoby, które jeszcze nie były w ośrodku.
+### 30 czerwca (wtorek) o 18:30 - Przy Ikara
+będziemy gościć pana Adama Piotrowskiego, prezesa Vigo System. Jest to polska spółka innowacyjna, która realizuje ciekawe projekty badawcze, jest znana m.in. z tego, że w 2016 r. na Marsa poleciał łazik z ich detektorami podczerwieni. Zapraszamy przyjaciół, kolegów i osoby, które jeszcze nie były w ośrodku.
 
 
 ----
