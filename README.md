@@ -1,20 +1,31 @@
-# Spotkanie co wtorek 18:30 przy ikara 6.
+# Plan majówki YP - szkic :)
 
-## Najbliższe wydarzenia dodatkowe
+## piątek 30.04
+ - 13:00 wyjazd (miejsce wyjazdu umawiają kierowcy samochdów)
+ - 19:00 kolacja grillowa (jeśli nie będzie dyspensy - bezmięsna)
+## sobota 01.05
+ - 8:00 modlitwa
+ - 8:30 msza
+ - 9:10 śniadanie
+ - 10:00 prace przy ośrodku (jeśli nie będzie możliwości przygotowania obiadu przez administrację, to część ekipy będzie w tym czasie gotowała)
+ - 11:30 wypad rowerowy na miasto
+ - 13:00 obiad
+ - 14:00 czas wolny
+ - 15:00 sport (hala)
+ - 18:00 czas wolny 
+ - 19:00 kolacja + temat wyjazdu: wykład o Dante
+## niedziela 02.05
+ - 8:00 modlitwa
+ - 8:30 msza
+ - 9:10 śniadanie
+ - 10:00 wyjazd nad morze (w tym obiad z ogniska)
+ - 17:00 czas wolny
+ - 19:00 kolacja + film
 
-### 26 czerwca (piątek) o 19:00 - Ktedra Warszawska św. Jana Chrzciciela 
-Msza Św. o św. Josemarii 🙂 godz. 19:00. Msza będzie z biskupem. To liturgiczne wspomnienie naszego Założyciela - warto już teraz polecać mu dużo intencji. Na Mszę śmiało można zapraszać rodzinę, znajomych.
-
-### 30 czerwca (wtorek) o 18:30 - Przy Ikara
-będziemy gościć pana Adama Piotrowskiego, prezesa Vigo System. Jest to polska spółka innowacyjna, która realizuje ciekawe projekty badawcze, jest znana m.in. z tego, że w 2016 r. na Marsa poleciał łazik z ich detektorami podczerwieni. Zapraszamy przyjaciół, kolegów i osoby, które jeszcze nie były w ośrodku.
-
-
-----
-
-**2-9.08 Coroczny wolontariat wakacyjny [Siennica](https://goo.gl/maps/oir1wwNkufv1N8h68)**
-[zobacz jak było rok temu](https://youtu.be/uP36kN5RhqY)
-
-------
-[fb](https://www.facebook.com/%C5%9Awi%C4%99to%C5%9B%C4%87-w-wielkim-mie%C5%9Bcie-100984374613925/?modal=admin_todo_tour)
-
-<a href="mailto:marcin.jagielowicz@gmail.com">Napisz do mnie</a>
+## poniedziałek 03.05
+ - 8:00 modlitwa
+ - 8:30 msza
+ - 9:10 śniadanie
+ - 10:00 wykład X.Kazika (teologia)
+ - 13:00 obiad
+ - 14:00 odjazd
