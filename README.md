@@ -1,31 +1,3 @@
-# Plan majówki YP - szkic :)
+# spotkanie co tydzień
 
-## piątek 30.04
- - 13:00 wyjazd (miejsce wyjazdu umawiają kierowcy samochdów)
- - 19:00 kolacja grillowa (jeśli nie będzie dyspensy - bezmięsna)
-## sobota 01.05
- - 8:00 modlitwa
- - 8:30 msza
- - 9:10 śniadanie
- - 10:00 prace przy ośrodku (jeśli nie będzie możliwości przygotowania obiadu przez administrację, to część ekipy będzie w tym czasie gotowała)
- - 11:30 wypad rowerowy na miasto
- - 13:00 obiad
- - 14:00 czas wolny
- - 15:00 sport (hala)
- - 18:00 czas wolny 
- - 19:00 kolacja + temat wyjazdu: wykład o Dante
-## niedziela 02.05
- - 8:00 modlitwa
- - 8:30 msza
- - 9:10 śniadanie
- - 10:00 wyjazd nad morze (w tym obiad z ogniska)
- - 17:00 czas wolny
- - 19:00 kolacja + film
-
-## poniedziałek 03.05
- - 8:00 modlitwa
- - 8:30 msza
- - 9:10 śniadanie
- - 10:00 wykład X.Kazika (teologia)
- - 13:00 obiad
- - 14:00 odjazd
+wtorek, 18:30 [ikara 6](https://www.google.com/maps/place/Ikara+6,+02-705+Warszawa/@52.1861084,21.0253312,17z/data=!3m1!4b1!4m5!3m4!1s0x471932cdbfa7f693:0xaf925e5dbc371a9c!8m2!3d52.1861084!4d21.0275199)
