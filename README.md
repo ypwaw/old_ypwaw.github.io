@@ -29,3 +29,4 @@
  - 10:00 wykład X.Kazika (teologia)
  - 13:00 obiad
  - 14:00 odjazd
+[preces](/p/preces.md)
