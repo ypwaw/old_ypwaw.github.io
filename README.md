@@ -21,3 +21,8 @@ Plan roczny [(kalendarz google)](https://calendar.google.com/calendar/u/2?cid=ZD
 07.06	KRĄG 1	Bóg na wyciągnięcie ręki. Corpus Christi. Jak nie przyzwyczaić się do cudu Komunii św. Zwyczaj dziękczynienia po Komunii. Nawiedzenie Najświętszego Sakramentu. Czas bezpośrednio przez Komunią - komunie duchowe.
 
 21.06	KRĄG 2	Niełatwa sztuka odpoczynku. 
+
+
+CZERWIEC - WOLONTARIAT:
+
+https://siennica.github.io/
