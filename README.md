@@ -1,3 +1,23 @@
-# spotkanie co tydzień
+Plan roczny [(kalendarz google)](https://calendar.google.com/calendar/u/2?cid=ZDFzODQ0czZha3EzcDhwdHYydGU3OXZsdmdAZ3JvdXAuY2FsZW5kYXIuZ29vZ2xlLmNvbQ):
 
-wtorek, 18:30 [ikara 6](https://www.google.com/maps/place/Ikara+6,+02-705+Warszawa/@52.1861084,21.0253312,17z/data=!3m1!4b1!4m5!3m4!1s0x471932cdbfa7f693:0xaf925e5dbc371a9c!8m2!3d52.1861084!4d21.0275199)
+	Marzec	
+01.03	KRĄG 1	Nunc coepi. Cierpliwość do innych i samego siebie. Walczyć sportowo.
+
+08.03	KRĄG 2	Prawda o mnie. Pokora nie jest zgarbiona
+
+22.03	KRĄG 3	Moja droga w Kościele. Co to znaczy odkryć powołanie.
+		
+	Kwiecień	
+05.04	KRĄG 1	Jedność życia - czyli autorytet Kościoła w moich rękach
+
+19.04	KRĄG 2	Cnota męstwa - momenty bohaterskie, wytrwałość
+		
+	Maj	
+17.05	KRĄG 1	Trzy kłosy zboża i trzy części różańca. Tradycja pielgrzymek majowych i nabożeństwo do Najświętszej Marii Panny.
+
+31.05	KRĄG 2	Cały dzień dla Chrystusa, czyli Msza Święta najlepszym spotkaniem. Dusza kapłańska. Jaki ma związek liturgia Mszy Św. z moim biurkiem. Ofiarowanie czynności dnia.
+		
+	Czerwiec	
+07.06	KRĄG 1	Bóg na wyciągnięcie ręki. Corpus Christi. Jak nie przyzwyczaić się do cudu Komunii św. Zwyczaj dziękczynienia po Komunii. Nawiedzenie Najświętszego Sakramentu. Czas bezpośrednio przez Komunią - komunie duchowe.
+
+21.06	KRĄG 2	Niełatwa sztuka odpoczynku. 
